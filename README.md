@@ -20,7 +20,11 @@ Bu türden hataların düzeltilmesi için de bu platformu kullanacağım.
 Dolayısıyla kitabımın **bedeni** elinizdeki basılı kopyaysa, **ruhu** da buradaki sayfa olacaktır. Kitaptan maksimum verimi almak için iki kaynağın birlikte kullanılmasını önermekteyim.
 Her türlü soru, görüş ve öneri için hasan.bulut@omu.edu.tr adresine mail atabilirsiniz.
 
-Umarım elinizdeki kitap çalışmalarınızda size yardımcı olur,
+Umarım elinizdeki kitap çalışmalarınızda size yardımcı olur.
+
+**Eylül 2025 Duyuru:**
+
+Kitabımın ilk baskısı tükenmiştir. Okurlarımın ilgisinden dolayı kendilerine teşekkür eder, ikinci baskı için çalışmalara başladığımızı bildirmekten onur duyarım.  
 
 Saygılarımla.
 
